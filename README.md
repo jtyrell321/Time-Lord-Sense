@@ -4,7 +4,7 @@ I asked myself, Reg, I said: “How could we use BCI to influence the developmen
 Microwave Auditory Effect, barely audible sounds, repetition and periodic announcements of the Time, in 15, 30, 60 and 90 second increments, 24 hours a day, for months.  Granted, the method requires only uni-directional communication, akin to a service announcement.  But, I predict that every consenting volunteer would see improvement in their ability to estimate the length of temporal intervals.  With slight modification volunteers will see improvement their ability to estimate the time of day.  There’s a start.
 In time, I believe that we can habituate some small part of our mind to keeping time.  I am think of an friend, whose son was born with breathing difficulties.  SIDS was an ever-present threat.  I think my friend made a deal with Momoa to save his son’s life.  So, every year, he goes surfing in very dangerous waters.  I fret, but I honor that pledge.
 It’s just a fanciful idea, I suppose.  But, I can imagine benefits including more structured thinking, greater efficiencies, and overall improvements more outstanding than those hearlded by the invention of the first pocket watch by Peter Henlein.
-So, I gotta figure out how to make the right kinds Mantras, Jiggles,  Primers – themes and variations.  So, if that scrawny little mutt calling himself “Jackol” has any good suggestions about improving humanity, hit my Inbox.  Peace.
+So, I gotta figure out how to make the right kinds Mantras, Jiggles,  Primers – themes and variations.  So, if that scrawny little mutt has any good suggestions about improving humanity, hit my Inbox.  Peace.
 
 
 
